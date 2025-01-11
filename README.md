@@ -16,7 +16,7 @@ Without enough gems, progressing in the game can feel slow and frustrating. That
 
 Our method is simple, secure, and beginner-friendly. By accessing the guide on HeatSync Labs' official wiki 
 
-## [👉 Claim Free Gems Now 👈](https://offers.besteventtoday.com/gems/), you’ll learn:  
+## [👉 Claim Free Gems Now 👈](https://offers.besteventtoday.com/gems/)
 - Proven ways to earn free gems through in-game events.  
 - Hacks and cheats for bypassing unnecessary gem purchases.  
 - Tips to maximize your resources while keeping your account safe.  
